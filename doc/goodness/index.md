@@ -35,3 +35,9 @@ Be respectful.
 Be trustable. 
 
 Be thankful.
+
+Be supportive 
+
+Be motivated 
+
+Be inspired
